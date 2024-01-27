@@ -1,2 +1,1 @@
-# xdxd_gugolas
-xdxd_gugolas
+FIVEM FREE // XDXD_GUGOLAS
